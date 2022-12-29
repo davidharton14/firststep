@@ -1,3 +1,4 @@
 # firststep
+
 asdsdsdsadasdasd
-asdasd
+asdasdșș3krngtgklmglșwrrg,q3țșg,ț
